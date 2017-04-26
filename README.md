@@ -1,2 +1,3 @@
-# hammadmashkoor.github.io
-Resume
+Hammad Mashkoor
+Freelancer
+
